@@ -15,7 +15,7 @@ Long-lasting Accounts
 contact telegram : https://t.me/danirueaq
 
 
-telegram channel : https://t.me/toolsgiie
+telegram channel : https://t.me/Sectools1
 
 # Instagram-Account-Creator-Bot
 Instagram 账号创建器主要功能
